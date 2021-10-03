@@ -1,1 +1,1 @@
-# -game---over-
+# :) game over
